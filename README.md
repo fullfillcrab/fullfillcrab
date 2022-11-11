@@ -1,0 +1,1 @@
+Hey I am Shashank Kulkarni, just started getting in to this world, it's been rough so far understanding what to learn and begin with but it's really intresting. Working on a few project right now lets see how they turn out
